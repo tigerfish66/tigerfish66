@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tigerfish66
 - 👀 I’m interested in ... Being NICE
-- 🌱 I’m currently learning ... GO
+- 🌱 I’m currently learning ... Honnyist Coding
 - 💞️ I’m looking to collaborate on ... Nothing
 - 📫 How to reach me ... dont Please
 
