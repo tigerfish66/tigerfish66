@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tigerfish66
-- 👀 I’m interested in ... Being NICE
-- 🌱 I’m currently learning ... Honnyist Coding
+- 👀 I’m interested in ... Being NICE, learning, helping, Project Management, Hobbyist Coding for my education
+- 🌱 I’m currently learning ... Hobbyist Coding using various languages
 - 💞️ I’m looking to collaborate on ... Nothing
 - 📫 How to reach me ... dont Please
 
